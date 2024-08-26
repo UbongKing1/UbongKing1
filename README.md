@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @UbongKing1
-- 👀 I’m interested in coding, UI/UX
-- 🌱 I’m currently learning graphics design
-- 💞️ I’m looking to collaborate with website designers to make graphic designs for websites.
+- 👀 I’m interested in coding.
+- 🌱 I’m Senior Creative Designer and Assistannt Marketing Team Lead.
+- 💞️ I’m looking to collaborate with other team leads and creatives of other brands.
 - 📫 How to reach me. You can reach me on my mail: theubongking@gmail.com or Instagram: @_ub0ng
 
 <!---
